@@ -1,1 +1,2 @@
-# Redmi_12_5G_Case
+# Redmi 12 5G Case 3d Model
+
